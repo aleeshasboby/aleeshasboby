@@ -1,6 +1,5 @@
 # 💫 About Me:
-👩🏻‍💻Currently pursuing BTech Computer Science<br>🎓Cochin University of Science and Technology<br>🔵LinkedIn account - www.linkedin.com/in/aleesha-s-boby-b4476332a
-📧aleeshasboby2@gmail.com
+👩🏻‍💻Currently pursuing BTech Computer Science<br>🎓Cochin University of Science and Technology<br>🔵LinkedIn account - www.linkedin.com/in/aleesha-s-boby-b4476332a<br>📧aleeshasboby2@gmail.com
 
 
 ## 🌐 Socials:
